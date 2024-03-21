@@ -1,6 +1,6 @@
 # #idroppeditinthepond
 
-![Uploading idroppeditinthepond1.png…]()
+![idroppeditinthepond1](https://github.com/shanestover8991/idroppeditinthepond/assets/142859309/0eb31925-1af6-4c5f-b06f-57d9124258a9)
 
 "I Dropped It in the Pond" is the title of an ethnographic reflection on the Reorganized Latter Day Saint (RLDS) movement. This ethnography will focus in particular on the idea of the Reorganization as a site of privilege and prestige. "I dropped it in the pond" is a specific comment one Graceland University alum made to me on Sacrament Sunday during a fun winter 2023-2024 visit to a local Reorganized congregation near where I lived in suburban Los Aangeles. There's lots of rules around privacy--in life in general, as well as in the act of ethnographic writing and thinking. His, her, or they/their name, and the name of the other person who sat next to me during that conversation, will remain anonymous for now. Let's just say, we had a lot of fun together on a very special Sunday, and even after many years of taking the sacrament in (non-Reorganized) Latter-day Saint congregations, that particular sacrament, and the conversation that ensued after it, are both events that I'll remember for a long time.
 
